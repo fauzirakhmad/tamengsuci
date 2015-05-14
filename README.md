@@ -1,0 +1,2 @@
+# tamengsuci
+(isi terserah)
